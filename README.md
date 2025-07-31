@@ -58,5 +58,5 @@ The final cleaned dataset is ready for use in outbound marketing or analysis, co
 
 **Eichi Thu**  
 🌐 [Portfolio Website](https://eichitportfolio.framer.website)  
-📧 eichithu@email.com  
+📧 eichitpo2004@gmail.com
 📍 Thailand  
